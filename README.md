@@ -1,3 +1,5 @@
+Created by Yucong Duan (段玉聪).
+
 FUSIONLOOP
 Carbon-Silicon Symbiogenesis, Dual Sovereignty, and Hybrid Capability Continuity.
 Not human replacement. Not machine imitation. New capability is born between carbon and silicon—and remains portable, corrigible, reversible, and jointly governed.
